@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Currently a Computer Science student looking for internships. 
+Reach out to me through linkedin --> www.linkedin.com/in/nishantgc
